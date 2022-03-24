@@ -156,7 +156,7 @@ Austin, Joe. "Taking The Trains: The Formation and Structure of 'Writing Culture
 
 Wimsatt, William Upski. "Suckers Don't Last a Minute: Good Rhyme, Bad Theory" and "Hip-Hop is Supposed to Eliminate Itself." In _Bomb the Suburbs_. New York, NY: Soft Skull Press, 1995, pp. 145-155. ISBN: 9780964385504.
 
-Specter, Michael. "I Am Fashion: Puff Daddy Packages His World." _The New Yorker_. September 9, 2002, pp. 116-127. (![This resource may not render correctly in a screen reader.](/images/inacessible.gif)[PDF - 5.2 MB](http://www.michaelspecter.com/wp-content/uploads/puffdaddy.pdf))
+Specter, Michael. "I Am Fashion: Puff Daddy Packages His World." _The New Yorker_. September 9, 2002, pp. 116-127. ([PDF - 5.2 MB](http://www.michaelspecter.com/wp-content/uploads/puffdaddy.pdf))
 
 ### Supplementary
 
